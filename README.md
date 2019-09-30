@@ -1,5 +1,9 @@
 # LiteePaper 4.70
 
-![Alt text](https://lh3.googleusercontent.com/uRYfMNUxBxiN5dYs6m5VF8ha_kYbbhwyAttpdTjx8fFH6PXT9M0Gjyoy94lyhTd0ihU=s180?raw=true "Output Image")
-![Alt text](https://lh3.googleusercontent.com/aSPaOKUNN5Lyx3I0tPWcGzwcp8XLAIh5CYovExS5gLzyeNQRskaIIs_0afneQExLPtvc=w720-h310?raw=true "Output Image")
-![Alt text](https://lh3.googleusercontent.com/1SNKH97Hzf3vMV7H5LmOsT-W8T80Bwe5kvYgxxAUQZ0O65-ozhX_kAq2KeUW7vtei8ol=w720-h310?raw=true "Output Image")
+<img src="https://image.winudf.com/v2/image1/c3VicmF0LnRlY2huaWNhbC5saXRlZXBhcGVyX2ljb25fMTU0MzgxNDAzNF8wNjM/icon.png?w=170&fakeurl=1" width="40%">.
+<img src="https://image.winudf.com/v2/image1/c3VicmF0LnRlY2huaWNhbC5saXRlZXBhcGVyX3NjcmVlbl8wXzE1NDM4MTQwMzRfMDEx/screen-0.jpg?h=355&fakeurl=1&type=.jpg" width="40%">.
+<img src="https://image.winudf.com/v2/image1/c3VicmF0LnRlY2huaWNhbC5saXRlZXBhcGVyX3NjcmVlbl8xXzE1NDM4MTQwMzVfMDIz/screen-1.jpg?h=355&fakeurl=1&type=.jpg" width="40%">.
+<img src="https://image.winudf.com/v2/image1/c3VicmF0LnRlY2huaWNhbC5saXRlZXBhcGVyX3NjcmVlbl80XzE1NDM4MTQwMzlfMDQ5/screen-4.jpg?h=355&fakeurl=1&type=.jpg" width="40%">.
+<img src="https://image.winudf.com/v2/image1/c3VicmF0LnRlY2huaWNhbC5saXRlZXBhcGVyX3NjcmVlbl83XzE1NDM4MTQwNDFfMDY2/screen-7.jpg?h=355&fakeurl=1&type=.jpg" width="40%">.
+
+<h1><a href="https://apkpure.com/all-epaper-newspaper/subrat.technical.liteepaper">Download APK</a></h1>
